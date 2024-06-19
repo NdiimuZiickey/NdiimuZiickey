@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Software Engineering and Cyber security
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me zeeisa@gmail.com
-- 😄 Pronouns: HER/ Hers
+- 😄 Pronouns: She/Her
 - ⚡ Fun fact: I'm Phenominal in all odds.
 
 <!---
